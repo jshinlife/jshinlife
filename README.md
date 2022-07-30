@@ -1,3 +1,3 @@
-hey there!
+Hey there!👋
 
-im josh, nice to meet you. i am a graphic designer located in Wales, UK ✌️ 
+I'm Josh, nice to meet you. I am a graphic designer located in Wales, UK ✌️ 
