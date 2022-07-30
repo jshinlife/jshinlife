@@ -1,6 +1,7 @@
 Hey there!👋
 
-My name is Josh, I am currently 15 years old. Nice to meet you and thanks for visiting my profile. I am a graphic designer located in Wales, UK ✌️
+My name is Josh, I am currently 15 years old. I wanted to say thanks for visiting my profile. A little bit about me is that: \
+I am a graphic designer located in Wales, UK ✌️
 
 To check all of my projects: \
 Visit my website at [jvsh.me](https://jvsh.me)
