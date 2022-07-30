@@ -8,4 +8,4 @@ Visit my website at [jvsh.me](https://jvsh.me)
 If you don't follow me on Twitter, what are you doing? \
 [@jshjnes](https://twitter.com/jshjnes)
 
-contact me here:[hello@jvsh.me](mailto://hello@jvsh.me)
+contact me here: [hello@jvsh.me](mailto://hello@jvsh.me)
