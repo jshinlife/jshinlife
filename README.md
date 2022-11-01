@@ -1,6 +1,6 @@
 Hey there!👋
 
-My name is Josh, I am currently 15 years old. I wanted to say thanks for visiting my profile. / 
+My name is Josh, I am currently 15 years old. I wanted to say thanks for visiting my profile. \
 A little bit about me is that: \
 I am a graphic designer located in Wales, UK ✌️
 
