@@ -5,7 +5,8 @@ A little bit about me is that: \
 I am a 16 year old, learning Graphic Design in Wales, UK ✌️
 
 To check all of my projects: \
-Visit my website at [jvsh.design](https://jvsh.design)
+Visit my website at [jvsh.design](https://jvsh.design) \
+Or go to my Instagram: [@jvshdesign](https://www.instagram.com/jvshdesign/)
 
 If you don't follow me on Twitter, what are you doing? \
 [@jshjnes](https://twitter.com/jshjnes)
