@@ -9,7 +9,7 @@ Visit my website at [jvsh.design](https://jvsh.design) \
 Or go to my Instagram: [@jvshdesign](https://www.instagram.com/jvshdesign/)
 
 If you don't follow me on Twitter, what are you doing? \
-[@jshjnes](https://twitter.com/jshjnes)
+[@jshinlife](https://twitter.com/jshinlife)
 
 For more information about me, check out my Bento: \
 [bento.me/jsh](https://bento.me/jsh)
