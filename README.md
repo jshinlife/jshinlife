@@ -2,7 +2,7 @@ Hey there!👋
 
 My name is Josh! Nice to meet you :) \
 A little bit about me is that: \
-I am a 16 year old, learning Graphic Design in Wales, UK ✌️
+I am a 17 year old, learning Graphic Design in Wales, UK ✌️
 
 To check all of my projects: \
 Visit my website at [jvsh.design](https://jvsh.design) \
